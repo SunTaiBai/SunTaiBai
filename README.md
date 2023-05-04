@@ -1,4 +1,4 @@
-### Hi there, I'm SunTaiBai 👋
+### I'm SunTaiBai 👋
 
 <pre>
 扬黄牛精神，做平凡工作。
